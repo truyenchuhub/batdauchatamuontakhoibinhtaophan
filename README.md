@@ -1,7 +1,7 @@
 <div align="center">
 
 
-[Bắt Đầu Cha Ta Muốn Ta Khởi Binh Tạo Phản](https://tutruyenchu.com/truyen/Bat-dau-Cha-Ta-Muon-Ta-Khoi-Binh-Tao-Phan) - [Top truyện đam mỹ hay nhất](https://tutruyenchu.com/danhsach/truyen-dam-my-hay)
+[Bắt Đầu Cha Ta Muốn Ta Khởi Binh Tạo Phản](https://truyenchuhub.org/truyen/Bat-dau-Cha-Ta-Muon-Ta-Khoi-Binh-Tao-Phan) - [Top truyện đam mỹ hay nhất](https://truyenchuhub.org/danhsach/truyen-dam-my-hay)
 </div>
 
 Lý Lạc xuyên qua đến dị thế, trở thành Bắc Lương thế tử.
